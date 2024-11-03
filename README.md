@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NayeliFC1
+- 👋 Hi, I’m Nayeli Flores
 - 👀 I’m interested in English Teaching, English as a Foreign Language Teaching
 - 🌱 I’m currently learning about Technology in Education
 - 📫 How to reach me: nayeliflores@uninnova.mx
